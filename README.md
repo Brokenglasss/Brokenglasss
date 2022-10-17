@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Brokenglasss
-- 👀 I’m interested in ... leanring different things about computer
+- 👀 I’m interested in ... learning different things about computer
 - 🌱 I’m currently learning ... about how to tpy faster, emails, and stuff.
 - 💞️ I’m looking to collaborate on ... umm?
 - 📫 How to reach me ... no thank you. 
